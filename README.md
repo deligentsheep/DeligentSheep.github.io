@@ -1,1 +1,0 @@
-# deligentsheep.github.io
